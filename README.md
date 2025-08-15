@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **harshitgp814@gmail.com**
 
-- ⚡ Fun fact **I think i am a good-problem solver**
+- ⚡  **I think i am a good-problem solver**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
